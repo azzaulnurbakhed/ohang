@@ -1,2 +1,0 @@
-# ohang
-Ojo dumeh
